@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Omzlaw
+- 👋 Hi, I’m Omeiza Alabi @Omzlaw
 - 👀 I’m interested in awesome things
 - 🌱 I’m currently learning how to change the world one code at a time
 - 💞️ I’m looking to collaborate on everything worth-while
